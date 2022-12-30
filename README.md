@@ -1,7 +1,7 @@
 - 👋 Hi, I’m yashpal singh
 - 👀 I’m interested in data and business analytics.
 - 🌱 I’m currently learning various BI tools , Business strategy making and various other technical skills.
-- 💞️ I’m looking fo rvarious internship and new skills development companies .
+- 💞️ I’m looking fo various internship and new skills development companies .
 - 📫 you can reach me via mail..
 - Gmail:- yashpalsingh0502@gmail.com
 
